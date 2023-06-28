@@ -1,5 +1,5 @@
-Hi I'm Kai (aka TBR).
-My pronouns are she/they🏳️‍⚧️🏳️‍🌈.
+Hi I'm Emma (aka TBR).
+My pronouns are she/her🏳️‍⚧️🏳️‍🌈.
 I am a registered coding trans girl 😎.
 If you are working in a big company and are copying my code comment "this was made by TBR4 on github".
 
